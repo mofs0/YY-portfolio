@@ -51,7 +51,7 @@ Data analysis · Content creation · Research assistance
 
 ## Contact
 
-Email: xiaolongxia.finance@gmail.com
+Email: 1795837192@qq.com
 
 ---
 
